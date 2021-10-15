@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<A brand new baby Hubber.
+A brand new baby Hubber.
 
 - 😄 Pronouns: She/her
 - :house: Currently living, laughing, and loving in Pittsburgh, PA
@@ -9,5 +9,4 @@
 - :seedling: :speech_balloon: Ask me about: vegan recipes, organization tips, and road trip music
 - :email: How to reach me: carajcostik@gmail.com
 - ⚡ Fun fact: I can sing the states in alphabetical order
-- 
--->
+
